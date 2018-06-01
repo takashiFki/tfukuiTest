@@ -1,4 +1,5 @@
 # tfukuiTest
-this is modified and applied.
-this is modified and modified
-and so on comming soon OK...
+未だワッショイ漢王国
+夏のふんどし大決算セール
+秋のどすこいパン祭り
+譲れない力士を添えて
